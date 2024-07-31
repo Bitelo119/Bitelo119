@@ -1,0 +1,2 @@
+- 👋 Oi, meu nome @Bitelo119
+- só quero enviar essa bomba
